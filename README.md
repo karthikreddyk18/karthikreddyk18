@@ -1,4 +1,3 @@
-# Karthik Reddy:
 🥇Software Developer
 
 🤖AI Engineer
